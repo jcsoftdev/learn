@@ -1,5 +1,5 @@
 # <center style="color:#ff7711" ><b>AUTOLIDERAZGO</b><center/>
-![Liderazgo]("https://github.com/jcsoftia/learn/tree/master/AUTOLIDERAZGO/img/lider.jpg")
+![Liderazgo]("https://github.com/jcsoftia/learn/blob/master/AUTOLIDERAZGO/img/lider.jpg")
 Conoceremos tres pasos para conseguir auto liderarnos, pero primero ¿que es un lider?
 Un lider es aquella persona al que un grupo de personas sigue(Es elegido).
 Un lider guía, motiva, potencia y empodera.
