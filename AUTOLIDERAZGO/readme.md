@@ -42,5 +42,5 @@ Planificar y accionar sintiendote capáz para cumplir un objetivo. Seremos ese l
 
 ¿Si nosotros no nos autolideramos que ejemplo esperamos dar al mundo?
 
-<a href="https://www.udemy.com/autoliderazgo-en-3-pasos" target="_blank">Descubre el curso que me ayudó a tomar decisión de mis acciones y tomar el control de mi propia vida</a>
+[Descubre el curso que me ayudó a tomar decisión de mis acciones y tomar el control de mi propia vida](https://www.udemy.com/autoliderazgo-en-3-pasos)
 
