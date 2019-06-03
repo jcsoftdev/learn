@@ -4,16 +4,16 @@ Conoceremos tres pasos para conseguir auto liderarnos, pero primero ¿que es un 
 Un lider es aquella persona al que un grupo de personas sigue(Es elegido).
 Un lider guía, motiva, potencia y empodera.
 
-A partir de esto aplicamos el liderazgo para uno mismo y haci buscar lo mejor de cada uno de nosotros. No elegimos como nuestro propio lider. 
+A partir de esto aplicamos el liderazgo para uno mismo y asi buscar lo mejor de cada uno de nosotros. No elegimos como nuestro propio lider. 
 Si nos admiramos, nos elegimos, nos guiamos, motivamos, potenciamos y empoderamos podemos decir que somos nuestro propio lider.
 ## 3 PASOS para conseguir un autoliderazgo
 ### <li><b><i>RESPONSABLE DE UNO MISMO</i></b></li>
-EL primer paso es tomar completa responsabilidad de nuestra vida. Hay diferencia entre ser responsable y ser victima.
+EL primer paso es tomar completa responsabilidad de nuestra vida. Hay diferencia entre ser responsable y ser víctima.
 
-Al ser victima culpamos a algo que esté fuera y nosotros somos una simple victima para solo tener pena de nosotros mismos.
+Al ser víctima culpamos a algo que está fuera y nosotros somos una simple víctima para solo tener pena de nosotros mismos.
 
-Ser responsbale es ser responsable de nuestras acciones.
-Ser responsable es decir me fue mal en el examen porque no estudié lo suficiente, estudié mal, etc. Sin poner la culpabilidad en otros sino que tomamos responsabilidad de nuestros actos y quien estamos siendo en este preciso momento. A partir de esto nos damos una retroalimentacion (feedback) para ser cada dia mejor y ser nuestro propio lider.
+Aprendamos a tomar nuestras acciones.
+Ser responsable requiere decir por ejemplo: me fue mal en el examen porque no estudié lo suficiente, estudié mal, etc. Sin poner la culpabilidad en otros sino que tomamos responsabilidad de nuestros actos y quien estamos siendo en este preciso momento. A partir de esto nos damos una retroalimentacion (feedback) para ser cada dia mejor y ser nuestro propio lider.
 
 
 <b>No dejemos que lo de fuera tome el control de nosotros <i> DESCUBRIR A NUESTRO SER</i></b>
